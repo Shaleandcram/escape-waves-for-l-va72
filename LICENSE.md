@@ -1,4 +1,4 @@
-#  
+#  escape waves for lucky blocks smart Scripts is the best escape waves for lucky blocks Script, featuring no cooldown and auto-sell. Safe and powerful
 
 
 
